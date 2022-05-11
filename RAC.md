@@ -2,4 +2,4 @@
 
 
 
-se nekaj besedila za nadomestilo
+se nekaj besedila za nadomestilo!
